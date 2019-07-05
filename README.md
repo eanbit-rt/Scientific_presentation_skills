@@ -1,1 +1,1 @@
-# Scientific_presentation_skills
+# Scientific Presentation Skills
